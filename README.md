@@ -3,5 +3,5 @@
 Membres du Groupe:
 
 - Eric FONTES VAZ
-- Mohamed Ali BOUZIMA
+- Mohamed Ali BOUMIZA
 - Lydia GETTOUCHE 
